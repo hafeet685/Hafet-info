@@ -3,4 +3,4 @@ Personal information
  
 🕮 Student
 
-💻 interested in tech
+💻 interested and enthusiast in tech productivity
